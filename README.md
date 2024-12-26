@@ -24,17 +24,14 @@
 
 ✰DO NOT take seriously any freaky things I say or brainrot- it’s just for shits and giggles 
 
-「 ✦ LIKES  ─── ⋆⋅☆ ✦ 」
+「 ✦ MUSIC  ─── ⋆⋅☆ ✦ 」
+(current favs):
 
-♥Content: Caseoh + Rotten Mango + Creepcast + Ravon + Art Deco
+♥Headlock-Imogen Heap 
 
-♥ Music (current favs): Headlock-Imogen Heap + Birds don’t sing- TV Girl + From The Start-Laufey
+♥Birds don’t sing- TV Girl 
 
-♥Fav Movies: Spirited Away + Never Ending Story + Labyrinth + Mune + Nightmare Before Christmas + Chappie
-
-♥Fav Series/Animes: Ninjago + Transformers(trying to watch all)+ H2O + Noragami + Black Butler + Angels of Death + Saiki k (more that I can’t think of rn)
-
-♥Fav Comics: idw transformers + Goodnight punpun + Nana + The Ancient Magus’ Bride
+♥From The Start-Laufey
 
 ![image](https://github.com/user-attachments/assets/51bdd87f-7830-47a2-ad8c-d4df307f0c37)
 
@@ -47,8 +44,8 @@
 
 ✷Ponytown
 
-![image](https://github.com/user-attachments/assets/c8ef2f2c-7050-4314-ba43-71f46df9a547)
-
+![image](https://github.com/user-attachments/assets/7810ef90-cc2b-4351-bb8d-38a4def4e42d)
+![image](https://github.com/user-attachments/assets/235fae15-320b-45a0-8397-420684dadda9)
 
 「 ✦ FAV CHARACTERS ─── ⋆⋅☆  ✦ 」
 
@@ -66,7 +63,8 @@
 
 ✿KIN-Emily (corpse bride)
 
-![image](https://github.com/user-attachments/assets/7810ef90-cc2b-4351-bb8d-38a4def4e42d)
-![image](https://github.com/user-attachments/assets/235fae15-320b-45a0-8397-420684dadda9)
+![image](https://github.com/user-attachments/assets/c8ef2f2c-7050-4314-ba43-71f46df9a547)
+
+
 
 
