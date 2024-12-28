@@ -17,12 +17,18 @@
 ✰Looking for more transformers fans + making skins
 【talk to me and sit with me(or invite me)pls- h+c!!】
 
-✰Introverted- yapper if I’m comfortable
+✰Don't be scared to talk to me (I'm more scared) I'll try to keep up the conversation but I'm not too good
+
+✰Introverted- but yapper if I’m comfortable
 【please tell me if i’m being annoying instead of enduring it】
 
-✰Love to comfort people (vent to me whenever)
+✰Love to comfort people (vent to me whenever,but don't make it the only reason we talk)
 
 ✰DO NOT take seriously any freaky things I say or brainrot- it’s just for shits and giggles 
+
+✰I'm not very energetic and loud (just saying since some people find it boring..)
+
+✰I'm fine with any type of humor, unless it's offending or just messed up.
 
 「 ✦ MUSIC  ─── ⋆⋅☆ ✦ 」
 (current favs):
@@ -31,7 +37,7 @@
 
 ♥Birds don’t sing- TV Girl 
 
-♥From The Start-Laufey
+♥Kunst- KMFDM
 
 ![image](https://github.com/user-attachments/assets/51bdd87f-7830-47a2-ad8c-d4df307f0c37)
 
