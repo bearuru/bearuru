@@ -67,10 +67,21 @@
 
 ✿Misfire
 
-✿KIN-Emily (corpse bride)
+✿Emily (corpse bride)
 
-![image](https://github.com/user-attachments/assets/c8ef2f2c-7050-4314-ba43-71f46df9a547)
+![image](https://github.com/user-attachments/assets/c8ef2f2c-7050-4314-ba43-71f46df9a547
 
+「 ✦ Kins ─── ⋆⋅☆  ✦ 」
+
+୨୧Emily (corpse bride 
+
+୨୧Drift/Deadlock (idw) 
+
+୨୧Perceptor
+
+![17360933498388325162237195608129](https://github.com/user-attachments/assets/e4980165-1798-4fb6-bf07-4c0bec95b4be)
+
+![17360947778557018848212091076408](https://github.com/user-attachments/assets/915afca2-3442-4910-b7ba-b32833405d82)
 
 
 
