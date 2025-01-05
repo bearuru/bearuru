@@ -3,7 +3,7 @@
 
 ̗̀➛BEARU 
 
-【 She/her ┃virgo ┃somewhere between intp-infp┃bisexual 】
+【 She/her┃virgo┃infp┃bisexual┃asexual 】
 🇪🇸🇬🇧🇧🇬
 
 ➭Discord: bearuruu
