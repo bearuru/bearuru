@@ -69,7 +69,8 @@
 
 ✿Emily (corpse bride)
 
-![image](https://github.com/user-attachments/assets/c8ef2f2c-7050-4314-ba43-71f46df9a547
+![17360949193093140071072982624132](https://github.com/user-attachments/assets/e2aad383-01a9-4e95-bdb1-143640502a39)
+
 
 「 ✦ Kins ─── ⋆⋅☆  ✦ 」
 
