@@ -33,13 +33,11 @@
 「 ✦ MUSIC  ─── ⋆⋅☆ ✦ 」
 (current favs):
 
-♥Lilith-Saint Avamgeline 
+♥Lilith-Saint Avangeline 
 
 ♥Birds don’t sing- TV Girl 
 
-♥Brooklyn Baby- Lana del Rey
-
-![image](https://github.com/user-attachments/assets/51bdd87f-7830-47a2-ad8c-d4df307f0c37)
+♥Brooklyn Baby- Lana Dl Rey
 
 
 「 ✦ MULTIPLAYER GAMES  ─── ⋆⋅☆  ✦ 」
