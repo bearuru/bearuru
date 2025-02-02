@@ -33,11 +33,11 @@
 「 ✦ MUSIC  ─── ⋆⋅☆ ✦ 」
 (current favs):
 
-♥Headlock-Imogen Heap 
+♥Lilith-Saint Avamgeline 
 
 ♥Birds don’t sing- TV Girl 
 
-♥Kunst- KMFDM
+♥Brooklyn Baby- Lana del Rey
 
 ![image](https://github.com/user-attachments/assets/51bdd87f-7830-47a2-ad8c-d4df307f0c37)
 
@@ -74,7 +74,7 @@
 
 「 ✦ Kins ─── ⋆⋅☆  ✦ 」
 
-୨୧Emily (corpse bride 
+୨୧Emily (corpse bride) 
 
 ୨୧Drift/Deadlock (idw) 
 
