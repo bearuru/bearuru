@@ -17,34 +17,32 @@
 ✰Looking for more transformers fans + making skins
 【talk to me and sit with me(or invite me)pls- h+c!!】
 
-✰Don't be scared to talk to me (I'm more scared) I'll try to keep up the conversation but I'm not too good
+✰I'll try to keep up the conversation but I'm not too good
 
 ✰Introverted- but yapper if I’m comfortable
 【please tell me if i’m being annoying instead of enduring it】
 
-✰Love to comfort people (vent to me whenever,but don't make it the only reason we talk)
+✰Love to comfort people (don't make it the only reason we talk)
 
-✰DO NOT take seriously any freaky things I say or brainrot- it’s just for shits and giggles 
-
-✰I'm not very energetic and loud (just saying since some people find it boring..)
+✰DO NOT take seriously anything I say or brainrot.
 
 ✰I'm fine with any type of humor, unless it's offending or just messed up.
 
 「 ✦ MUSIC  ─── ⋆⋅☆ ✦ 」
 (current favs):
 
-♥Lilith-Saint Avangeline 
+♥Lilith-Saint- Avangeline 
 
 ♥Baby I'm yours- Class Elliot
 
-♥Brooklyn Baby- Lana Dl Rey
+♥May you never forget me- Temachii
 
 
 「 ✦ MULTIPLAYER GAMES  ─── ⋆⋅☆  ✦ 」
 
 ✷Sky cotl 
 
-✷Roblox
+✷Roblox- functionalkalis
 
 ✷Ponytown
 
@@ -76,7 +74,7 @@
 
 ୨୧Drift/Deadlock (idw) 
 
-୨୧Perceptor
+୨୧Misfire
 
 ![17360933498388325162237195608129](https://github.com/user-attachments/assets/e4980165-1798-4fb6-bf07-4c0bec95b4be)
 
