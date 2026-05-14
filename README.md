@@ -1,3 +1,3 @@
-https://es.pinterest.com/pin/739082988889787769/
 
-![image](https://github.com/user-attachments/assets/488d7d27-1be7-4078-becf-cca1988e41a1)
+![image](https://i.pinimg.com/1200x/05/4d/72/054d72327069e6ba58f78f2288d562f5.jpg)
+
